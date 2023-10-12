@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Aline Reis 😁
+## Bem-vindo(a) ao meu perfil *Aline Reis* 😁
 
  <div>
    <a href="https://github.com/Aline-Reis">
